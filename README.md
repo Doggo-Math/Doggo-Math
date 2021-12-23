@@ -4,11 +4,8 @@
 - 💞️ I’m looking to collaborate on an extension to the Collatz Conjecture
 - 📫 How to reach me:
 
-Email:  
-deandrereichelle333@gmail.com
+Email: deandrereichelle333@gmail.com
 
-Discord:
-https://discord.com/channels/@me/878746121223159899
+Discord DM: #Doggo9468
 
-Website:
-https://deandrereichelle33.wixsite.com/website
+Site: https://deandrereichelle33.wixsite.com/website
